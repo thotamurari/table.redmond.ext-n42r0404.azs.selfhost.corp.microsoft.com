@@ -1,0 +1,1 @@
+# table.redmond.ext-n42r0404.azs.selfhost.corp.microsoft.com
